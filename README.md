@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @auroragrani
+- 🌱 I’m currently studying Software Enginierring at UniMORE
+- 📫 How to reach me aurygrani@gmail.com
